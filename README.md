@@ -29,5 +29,3 @@ FOR MORE INFORMATION
 - EMAIL: admin@lostserver.my.id
 
 ![1](https://user-images.githubusercontent.com/83074099/221104548-12b9ac8c-a920-4dd3-adde-478ca39aa97b.jpeg)
-
-![2](https://user-images.githubusercontent.com/83074099/221104580-b6657779-210e-4dd2-9b3b-7524b74d2106.jpeg)
